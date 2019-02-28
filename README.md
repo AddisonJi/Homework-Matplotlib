@@ -1,4 +1,4 @@
-Option 2: Pymaceuticals Inc
+Pymaceuticals Inc
 
 
 
